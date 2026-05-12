@@ -1,4 +1,4 @@
-# 
+# Get the ultimate opensea sniper bot with elite NFT Bot for opensea sniper bot | royalty-calculator & cross-market-arbitrage. Featuring royalty-calculator and
 
 
 
